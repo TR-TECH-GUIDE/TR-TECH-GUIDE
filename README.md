@@ -8,6 +8,8 @@
   </a>
 </h1>
 
+# Account Moved To [TharukRenuja](https://github.com/TharukRenuja), Please Follow Me on New Account.
+
 <h1 align="center">
   Account Moved To [TharukRenuja](https://github.com/TharukRenuja), Please Follow Me on New Account.
 </h1>
